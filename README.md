@@ -1,0 +1,1 @@
+# politica-privacidade-app-memorizando-e-aprendendo
